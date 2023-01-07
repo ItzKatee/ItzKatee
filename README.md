@@ -1,3 +1,3 @@
 - 👋 Hi, I’m @KateeSkie
-- 💞️ I’m looking to collaborate on Minecraft
+- 📓 I'm currently learning code
 - 📫 How to reach me: DISCORD = KateeSkie#8615
