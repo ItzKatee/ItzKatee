@@ -1,3 +1,1 @@
-- 👋 Hi, I’m @Kateskie
-- 📓 I'm currently learning code
-- 📫 How to reach me: DISCORD = Kateskie
+
